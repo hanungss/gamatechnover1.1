@@ -1,1 +1,0 @@
-# gamatechnover1.1
